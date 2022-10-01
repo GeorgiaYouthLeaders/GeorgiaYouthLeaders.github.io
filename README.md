@@ -1,3 +1,0 @@
-# GeorgiaYouthLeaders
-
-Hi deesha
