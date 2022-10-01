@@ -1,1 +1,1 @@
-# GeorgiaYouthLeaders.github.io
+# GeorgiaYouthLeaders
